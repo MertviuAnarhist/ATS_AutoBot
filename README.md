@@ -6,4 +6,4 @@ To develop code for unmanned vehicle and drone
 3. Danila Dombrovskiy
 4. Igor Goryainov
 
-![](http://img.argumenti.ru/news/id/451153.jpg)
+![](https://sophosnews.files.wordpress.com/2017/06/shutterstock_664933006.jpg)
